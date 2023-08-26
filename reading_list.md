@@ -1,41 +1,41 @@
-_Book 1_</br>
-**Beyond Entrepreneurship 2.0**
-by James C. Collins, Bill Lazier</br>
+Book 1  
+**Beyond Entrepreneurship 2.0**  
+by James C. Collins, Bill Lazier  
 https://www.goodreads.com/book/show/55270310-be-2-0-beyond-entrepreneurship-2-0
 
-_Book 2_</br>
-**Good Economics for Hard Times**
-by Abhijit V. Banerjee, Esther Duflo</br>
+Book 2  
+**Good Economics for Hard Times**  
+by Abhijit V. Banerjee, Esther Duflo  
 https://www.goodreads.com/book/show/51014619-good-economics-for-hard-times
 
-_Book 3_</br>
-**Atomic Habits**
-by James Clear</br>
+Book 3  
+**Atomic Habits**  
+by James Clear  
 https://www.goodreads.com/book/show/40121378-atomic-habits
 
-_Book 4_</br>
-**Ultra-Processed People**
-by Chris van Tulleken</br>
+Book 4  
+**Ultra-Processed People**  
+by Chris van Tulleken  
 https://www.goodreads.com/book/show/62586003-ultra-processed-people
 
-_Book 5_</br>
-**Wordslut**
-by Amanda Montell</br>
+Book 5  
+**Wordslut**  
+by Amanda Montell  
 https://www.goodreads.com/book/show/41716694-wordslut
 
-_Book 6_</br>
-**The Martian**
-by Andy Weir</br>
+Book 6  
+**The Martian**  
+by Andy Weir  
 https://www.goodreads.com/book/show/18007564-the-martian
 
-_Book 7_</br>
+Book 7  
 
 
-_Book 8_</br>
+Book 8  
 
 
-_Book 9_</br>
+Book 9  
 
 
-_Book 10_</br>
+Book 10  
 
